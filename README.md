@@ -1,3 +1,2 @@
 # Practice_DataArt
 TeamWork Parinov and Ryaguzov
-Hmmmm....SOmething is wrong here...
